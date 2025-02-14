@@ -1,0 +1,1 @@
+# Vibraciones mecánicas
